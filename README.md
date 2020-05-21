@@ -6,3 +6,5 @@
 [Artigo utilizado](https://periodicos.ufpe.br/revistas/rbgfe/article/viewFile/232861/26852)
 
 :wink: espero que gostem!
+
+_Vivian Gaione_
